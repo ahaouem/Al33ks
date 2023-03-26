@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning **JavaScript, Java, Python and SQL**
 - 🚀 I'm crypto investor **$VRA $CAW**
-- ⌨ My discord: Aleks#8811
+- ⌨ My discord: Aleeks#8811
 
 
 
